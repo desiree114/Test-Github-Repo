@@ -8,6 +8,12 @@
 
 - Loves the Gym
 
--Currently doing a degree in CFG Degree in Product Management 
+- Currently doing a degree in CFG Degree in Product Management 
 
-- Lover of Politics 
+- Lover of Politics
+
+- I live in London
+
+- Was born in Zimbabwe
+
+- Haved lived in South Africa, Zimbabwe, Botswana and UK.
